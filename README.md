@@ -5,7 +5,7 @@ I'm a software engineer 🧑‍💻.
 
 React me on Linkedin ⭐ 🌟
 
-https://www.linkedin.com/in/hoang-nam-le-a16746173/
+www.linkedin.com/in/vinny-hle
 
 
 Welcome to my world 🤩 😘
