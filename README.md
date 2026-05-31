@@ -5,7 +5,7 @@ I'm a software engineer 🧑‍💻.
 
 React me on Linkedin ⭐ 🌟
 
-www.linkedin.com/in/vinny-hle
+[www.linkedin.com/in/vinny-hle](https://www.linkedin.com/in/vincent-hle/)
 
 
 Welcome to my world 🤩 😘
