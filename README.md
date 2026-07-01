@@ -1,11 +1,11 @@
-Hiiiii 👋
+Yo
 I'm a software engineer 🧑‍💻.
 
-🌱 🌿 Learning everyday is the way that I improve myself 🌞 🌼 🌳
+Learning everyday is the way that I improve myself
 
-React me on Linkedin ⭐ 🌟
+React me on Linkedin
 
 [www.linkedin.com/in/vinny-hle](https://www.linkedin.com/in/vincent-hle/)
 
 
-Welcome to my world 🤩 😘
+Welcome to my world 
